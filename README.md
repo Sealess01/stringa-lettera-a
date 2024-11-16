@@ -1,0 +1,1 @@
+# stringa-lettera-a
